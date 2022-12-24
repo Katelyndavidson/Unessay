@@ -1,13 +1,13 @@
 # Unessay
 https://www.theexploresspodcast.com/episodes/2018/s1e1/welcometomid19thcenturyamerica
-Marriage and family was their destiny
-Wear corsets
-War was the way of rewriting the rules, manny women found themselves driven and inspired
-Oil lantern beside the bed
-Church on sunday, dress to impress
-Gathered with other young women often 
-Clothing included: dresses, coats
-Accessories: baskets, flowers
+- Marriage and family was their destiny
+- Wear corsets
+- War was the way of rewriting the rules, manny women found themselves driven and inspired
+- Oil lantern beside the bed
+- Church on sunday, dress to impress
+- Gathered with other young women often 
+- Clothing included: dresses, coats
+- Accessories: baskets, flowers
 
 https://www.npr.org/sections/npr-history-dept/2015/11/20/456224571/18-rules-of-behavior-for-young-ladies-in-1831
 Avoid everything masculine
